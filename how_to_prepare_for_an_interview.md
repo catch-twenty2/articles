@@ -157,6 +157,7 @@ By knowing what you want (and what to avoid) you have greater chances than candi
 Over time, you will notice that a new job interview instead of causing stress will direct your attention towards "what I really want". Then all you have to worry about is how often to look for a new job (if at all), not how to prepare.
 
 --Michael Talarek
+
 ---
 *Disclaimer: This article is not associated nor sponsored by [Zalando](https://github.com/zalando). It emerged from a small checklist I used when looking for a job 2 years ago and a [larger book project](http://karierabezgranic.blogspot.com/) I worked on with [Magdalena](https://www.linkedin.com/in/magdalenamaslukmeller),  in our native language that got published in Q4 of 2020. This English version is its spin-off based on the feedback and requests from our colleagues to share our advice and knowledge with international audiences. Hope it helps!*
 
