@@ -1,5 +1,5 @@
 # articles
 stuff i wrote to share
-Copyright (c) 2019-2020 Michael Talarek
+Copyright (c) 2019-2021 Michael Talarek
 
 
