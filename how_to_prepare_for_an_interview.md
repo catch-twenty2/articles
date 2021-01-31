@@ -159,6 +159,6 @@ Over time, you will notice that a new job interview instead of causing stress wi
 --Michael Talarek
 
 ---
-*Disclaimer: This article is not associated nor sponsored by [Zalando](https://github.com/zalando). It emerged from a small checklist I used when looking for a job 2 years ago and a [larger book project](http://karierabezgranic.blogspot.com/) I worked on with [Magdalena](https://www.linkedin.com/in/magdalenamaslukmeller),  in our native language that got published in Q4 of 2020. This English version is its spin-off based on the feedback and requests from our colleagues to share our advice and knowledge with international audiences. Hope it helps!*
+*Disclaimer: This article is not associated nor sponsored by [Zalando](https://github.com/zalando). It emerged from a small checklist I used when looking for a job 2 years ago and a [larger book project](https://www.lulu.com/en/us/shop/magdalena-meller/rozmowa-kwalifikacyjna-po-niemiecku/paperback/product-gpeg6n.html?page=1&pageSize=4) I worked on with [Magdalena](https://www.linkedin.com/in/magdalenamaslukmeller),  in our native language that got published in Q4 of 2020. This English version is its spin-off based on the feedback and requests from our colleagues to share our advice and knowledge with international audiences. Hope it helps!*
 
-![book](https://media-exp1.licdn.com/dms/image/C4E12AQETQH3EaexzVg/article-inline_image-shrink_1000_1488/0/1610373313630?e=1617235200&v=beta&t=cxfbCI97-00mNqq1yMB2bb9HoZ6rCrprUdFY1kQJlMA "Job interview in German")
+![book](https://assets.lulu.com/cover_thumbs/g/p/gpeg6n-front-shortedge-384.jpg "Job interview in German")
