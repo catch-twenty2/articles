@@ -1,6 +1,6 @@
 # Glued to the screen: how to take care of your eyes in the Digital Age
 *Published on March 21, 2019 on [LinkedIn Pulse](https://www.linkedin.com/pulse/glued-screen-how-take-care-your-eyes-digital-age-michael-talarek-1f/)*
-![alt text](https://media-exp1.licdn.com/dms/image/C4D12AQGF_MUg9hvlpA/article-cover_image-shrink_720_1280/0/1553169313059?e=1614816000&v=beta&t=7r5fA5WVaP_TU83tbkt5lWGMbweH5OQyqUBiN6rt0iU "http://newatlas.com/blue-light-can-speed-blindness-retinal/55825/")
+![alt text](https://media-exp2.licdn.com/dms/image/C4D12AQGF_MUg9hvlpA/article-cover_image-shrink_720_1280/0/1553169313059?e=1661990400&v=beta&t=YrMNgVlT9X467FaQiF8TiIq8QETzltuotMIOq4ut_uc)
 20th March was the first day of Spring so from now on every day we will have more light outside. But there is also something called Blue Light, which is not so great. It might be helpful for you to know how to work, not only more effectively, but also healthy. Feel free to share your thoughts in comments below.
 
 We live in times, when we are constantly bombarded by screens. In work, at home, even in subway. Beside that, smartphones became our mobile centers for entertainment and remote offices. It’s not unusual to do daily business using only the smartphone. All those commodities unfortunately have a price and. CVS [(Computer vision syndrome)](https://en.wikipedia.org/wiki/Computer_vision_syndrome) is more and more common. Let’s see how we can make the life easier for our eyes. 
