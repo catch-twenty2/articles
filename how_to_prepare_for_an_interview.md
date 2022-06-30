@@ -1,6 +1,6 @@
 # How to prepare for an interview while employed?
 *Published on January 13, 2021 on [LinkedIn Pulse](https://www.linkedin.com/pulse/how-prepare-interview-while-employed-michael-talarek/)*
-![alt text](https://media-exp1.licdn.com/dms/image/C4E12AQF62BNuNSkuYw/article-cover_image-shrink_720_1280/0/1610373012681?e=1617235200&v=beta&t=XH6iScKPU0C545XxU9wDT9j4PbfLit8fa08umyAAh_E "job search")
+![alt text](https://media-exp2.licdn.com/dms/image/C4E12AQF62BNuNSkuYw/article-cover_image-shrink_720_1280/0/1610373012681?e=1661990400&v=beta&t=wJV5G1jqvl-QSJ2dYRC53Ju6otqKk6-FiU_JccpOMWU)
 
 **We all know that it is easier to land a new job when you are already employed. Your value is much bigger in the eyes of a potential employer. Also your chance to get hired is higher when using the help of a headhunter, sourcer or a person who can refer you. But it doesn’t mean you should act like a diva and expect a special treatment. As a perfect candidate, not in the hurry to land a new job, you should actually offer solving problems for the new employer, rather than creating them. Here is how to make the winning impression and reduce the likelihood of potential disappointments.**
 ```
