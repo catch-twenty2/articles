@@ -1,6 +1,6 @@
 # How to get a better job as Software Developer (without sending a single CV)?
 *Published on August 29, 2019 on [LinkedIn Pulse](https://www.linkedin.com/pulse/how-get-better-job-software-developer-without-sending-michael-talarek/)*
-![alt text](https://media-exp1.licdn.com/dms/image/C4E12AQFQ7_I02iKmuQ/article-cover_image-shrink_600_2000/0/1567095529997?e=1614816000&v=beta&t=OJzT00Z_CcwkVWxZnFJrHIPsblY0X_E9FzTDuhbJWsc "devs at summit")
+![alt text](https://media-exp1.licdn.com/dms/image/C4E12AQFQ7_I02iKmuQ/article-cover_image-shrink_600_2000/0/1567095529997?e=1661990400&v=beta&t=wKUZUg5gZYNRa-MNAJzaeekpGRtINrJRAhkwAhkL_XQ)
 
 If you're a software developer reading this text on LinkedIn, then you probably know how easy it is to get flooded by job opportunities from companies you've never heard of. On the other hand, the ones that interest you the most are busy rejecting people like you, because they have much more candidates to choose from. So how to get their attention by attracting them to your profile and discouraging the wrong ones? Following the [Smartly.io culture values](https://www.smartly.io/culturehandbook) I will try to show how to improve your chances for landing a better job as a passive candidate.
 
