@@ -10,6 +10,4 @@
 [Peer to Lead transition - how to make it right?](https://github.com/catch-twenty2/articles/blob/main/peer-lead-transition.md)
 
 ___
-Copyright (c) 2019-2021 Michael Talarek
-
 
